@@ -7,7 +7,7 @@ Reflecloud
 
 ### 詳細な記事
 
-
+大したこと書いてませんが[ご参照下さい。](http://garbage.1natsu.net/100517058525/tumblr_ndrav7tten1tx5nhs)
 
 ### 解像度/Resolution
 
